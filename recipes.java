@@ -9,8 +9,3 @@ tomato rice
 carret rice 
 
 thank you
-
-
-next verstion starts
-
-biriyani
